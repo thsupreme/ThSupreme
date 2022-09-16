@@ -1,4 +1,4 @@
-### Olá! eu sou o Thiago Martins ✌️
+### Helo!, I'm Thiago Martins from RJ, Brazil ✌️
 
 
 
